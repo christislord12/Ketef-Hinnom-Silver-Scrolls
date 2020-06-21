@@ -8,4 +8,4 @@ And on Google Sites https://sites.google.com/view/ketefhinnomsilverscrolls/.
 
 And on BlogSpot https://ketefhinnom.blogspot.com
 
-And on WordPress https://ketefhinnomsilverscrolls.wordpress.com/articles-and-links/.
+And on WordPress https://ketefhinnomsilverscrolls.wordpress.com.
